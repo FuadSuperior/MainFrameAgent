@@ -1,11 +1,3 @@
-Welcome to my land? i think? I DIDNT REMEMBER
-
-i guess
-
-welcome to my Channel. today im gonna show you how to 
-
-cmon, its not video even not streaming be reall man
-
 Welcome To My Profile 
 Let me Introduce Myself
 
@@ -15,5 +7,13 @@ Let me Introduce Myself
 
 
 My Name is Fouad Mohamed Mousa but i likely called Fuad
-
+From Indonesia
 Likes Science, Technology, Space, 
+
+My Skill based on i study
+- Mikrotik
+- Computer Technician
+- English Language
+
+
+i will study more to gain some experience in those skill and more training to do and get some certification 
